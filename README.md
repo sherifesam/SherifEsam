@@ -35,6 +35,6 @@ as you can see i've a promising career infront of me so please dont hesitate to 
 
 _and here is some additional contact info_
 
-**phone number :**  01126241341
+**phone number :**  01126241341  
 **email :**  sherifesam99@outlook.com
 
