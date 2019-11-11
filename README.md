@@ -30,10 +30,9 @@ as you can see i've a promising career infront of me so please dont hesitate to 
 
 ### contact info 
 
-[Here is my facebook](https://www.facebook.com/sherif.esam.5)  
-[And here is my twitter](https://twitter.com/SherifEsam211)
-
-_and here is some additional contact info_
+[facebook](https://www.facebook.com/sherif.esam.5)  
+[twitter](https://twitter.com/SherifEsam211)  
+[CV](https://drive.google.com/drive/folders/1-DeaGURgVjKpJWIrLrtZu8i8iAB6EPW6)  
 
 **phone number :**  01126241341  
 **email :**  sherifesam99@outlook.com
