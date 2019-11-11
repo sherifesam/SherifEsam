@@ -29,12 +29,12 @@ i'm looking forward to working in such a field so if any od you has a job for me
 as you can see i've a promising career infront of me so please dont hesitate to contact me!
 
 ### contact info 
-```markdown
+
 [Here is my facebook](https://www.facebook.com/sherif.esam.5)  
-[And here is my twitter] (https://twitter.com/SherifEsam211)
+[And here is my twitter](https://twitter.com/SherifEsam211)
 
 _and here is some additional contact info_
 
 **phone number :**  01126241341
 **email :**  sherifesam99@outlook.com
-```
+
