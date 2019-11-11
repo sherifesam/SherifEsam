@@ -31,9 +31,10 @@ as you can see i've a promising career infront of me so please dont hesitate to 
 ### contact info 
 ```markdown
 [Here is my facebook](https://www.facebook.com/sherif.esam.5)  
-[And here is my twitter](https://twitter.com/SherifEsam211)
+[And here is my twitter] (https://twitter.com/SherifEsam211)
 
-*and here is some additional contact info*
-**phone number :** 01126241341
-**email :** sherifesam99@outlook.com
+_and here is some additional contact info_
+
+**phone number :**  01126241341
+**email :**  sherifesam99@outlook.com
 ```
