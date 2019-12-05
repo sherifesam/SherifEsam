@@ -29,7 +29,7 @@ i'm looking forward to working in such a field so if any od you has a job for me
 *interesting huh?*  
 **I KNOWW!!**
 
-as you can see i've a promising career infront of me so please dont hesitate to contact me!
+As you can see i've a promising career infront of me so please dont hesitate to contact me!  
 if you are interested to see my latest work please check this [out](https://sherifesam11.github.io/Blog/)  
 
 ## Contact info 
