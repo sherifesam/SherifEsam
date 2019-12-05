@@ -30,6 +30,7 @@ i'm looking forward to working in such a field so if any od you has a job for me
 **I KNOWW!!**
 
 as you can see i've a promising career infront of me so please dont hesitate to contact me!
+if you are interested to see my latest work please check this [out](https://sherifesam11.github.io/Blog/)  
 
 ## Contact info 
 [facebook](https://www.facebook.com/sherif.esam.5)  
@@ -37,4 +38,6 @@ as you can see i've a promising career infront of me so please dont hesitate to 
 [CV](https://drive.google.com/drive/folders/1-DeaGURgVjKpJWIrLrtZu8i8iAB6EPW6)  
 **phone number :**  01126241341  
 **email :**  sherifesam99@outlook.com
+
+
 
